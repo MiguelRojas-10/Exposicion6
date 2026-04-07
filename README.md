@@ -1,3 +1,3 @@
 # Exposicion6
-Mi nombre es Julián Andrés Hernández Ortega.
-El día de hoy es 23/03/2026.
+Nuestros nombres son Miguel Angel Rojas Lugo y Cristian Santiago Oliveros Martinez.
+El día de hoy es 7/04/2026.
